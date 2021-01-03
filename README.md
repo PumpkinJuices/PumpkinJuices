@@ -1,4 +1,4 @@
-Hey, i'm just a fellow student, minding my own business, as you should 🕴🕴🕴🕴
+Mining Engineering Student interested in coding ⌨⛏
 
 <!--
 **PumpkinJuices/PumpkinJuices** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
