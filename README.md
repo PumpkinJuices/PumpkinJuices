@@ -1,4 +1,4 @@
-### Hi there 👋
+Hey, i'm just a fellow student, minding my own business, as you should 🕴🕴🕴🕴
 
 <!--
 **PumpkinJuices/PumpkinJuices** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
